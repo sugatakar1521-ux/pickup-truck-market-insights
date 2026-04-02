@@ -3,7 +3,7 @@
 This report provides a comprehensive, data‑driven analysis of the global pickup truck market, integrating recent industry developments, demand drivers, supply chain constraints, pricing trends, and segment dynamics.
 **Market Overview and Recent Developments**
 
-In 2026, the pickup truck market continues to generate robust news headlines reflecting diverse competitive dynamics and disruptive trends. General Motors reported stronger profitability driven by sustained demand for SUVs and pickup trucks despite persistent tariffs and regulatory headwinds, signaling resilient end‑market appetite for rugged and utility vehicles.
+In 2026, the pickup truck market continues to generate robust news headlines reflecting diverse competitive dynamics and disruptive trends. General Motors reported stronger profitability driven by sustained demand for SUV and pickup trucks despite persistent tariffs and regulatory headwinds, signaling resilient end‑market appetite for rugged and utility vehicles.
 
 Importantly, General Motors is expanding heavy‑duty truck production by adding a sixth working day at its Michigan plant beginning June 2026 to meet strong demand for gas‑powered pickups and mitigate tariff‑related supply pressure, underscoring capacity planning strategies within truck supply chains.
 
